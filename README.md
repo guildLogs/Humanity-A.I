@@ -22,8 +22,21 @@ karen Hao - known for her coverage on AI research, technology ethics and the soc
 
 [electric grid](https://youtu.be/3__HO-akNC8?si=EI2AO0LkMIYD1NmL)
 
+## dark enlightenment
 
-## interviews with the big players in A.I.
+[actual book](https://www.amazon.com/s?k=dark+enlightenment+book&language=en_US&adgrpid=1239150594092749&hvadid=77447042209261&hvbmt=bb&hvdev=c&hvlocphy=102057&hvnetw=s&hvqmt=b&hvtargid=kwd-77447313024301%3Aloc-190&hydadcr=25526_13592386&mcid=25a49b4d4639339997865fc70e7d3dfa&msclkid=5170e27ddc2b171bca668ab32188462a&tag=txtstdbgdt-20&ref=pd_sl_8whx1ql3xz_b)
+
+Wikipedia ](https://en.wikipedia.org/wiki/Dark_Enlightenment)
+
+[Time](https://time.com/7269166/dark-enlightenment-history-essay/)
+
+[the new yorker](https://www.newyorker.com/magazine/2025/06/09/curtis-yarvin-profile)
+
+[politico](https://www.politico.com/news/magazine/2024/07/18/jd-vance-world-view-sources-00168984)
+
+[buckscountybeacon(local)](https://buckscountybeacon.com/2024/07/jd-vance-peter-thiel-curtis-yarvin-2024-the-neoreactionary-dream-team/)
+
+## interviews with the biggest players in A.I.
 
 clips 
 
